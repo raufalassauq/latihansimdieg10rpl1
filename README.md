@@ -1,0 +1,1 @@
+# latihansimdieg10rpl1
